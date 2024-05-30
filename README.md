@@ -4,7 +4,7 @@
 
 - 📫 How to reach me email:- tanwarvikassingh43@gmail.com
 
-- ⚡ Fun fact: i am the you are looking for...
+- ⚡ Fun fact: i am the one you are looking for...
 
 <!---
 Vikassinghtanwar/Vikassinghtanwar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
